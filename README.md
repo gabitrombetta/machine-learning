@@ -1,0 +1,1 @@
+Curso de Machine Learning no [Téo Me Why](https://www.youtube.com/playlist?list=PLvlkVRRKOYFR6_LmNcJliicNan2TYeFO2)
